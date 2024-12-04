@@ -4,6 +4,8 @@
 
 ![image](https://github.com/user-attachments/assets/45f836ac-a78d-4e6c-a553-6bee7bc43416)
 
->HELLO!!! If it isn't obv, i am a Kinsley + Cole kinnie ! >_<<
+>HELLO!!! If it isn't obv, i am a Kinsley + Cole kinnie ! >_<
 
 ![image](https://github.com/user-attachments/assets/b59cd40c-dd69-4c78-a110-e9b5ed8ae042)
+
+(wip dont expect 2 much ajfuwrvbebhv)
